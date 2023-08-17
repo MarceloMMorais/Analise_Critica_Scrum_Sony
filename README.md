@@ -1,0 +1,1 @@
+# Analise_Critica_Scrum_Sony
